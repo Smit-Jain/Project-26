@@ -1,0 +1,1 @@
+This recipe is named as French Fries but mostly people call it simply Fries. They are pieces or sticks of potatoes deeply fried in vegitable oil so that it become crispy and tasty in look. They are served in room temperature with some salt dribbled on them for some better taste. You can eat it with ketchep or any additional ingrdient you like.
